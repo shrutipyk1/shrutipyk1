@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **shutingle0709@gmail.com**
 
-- 📄 Know about my work experence [White Blue Modern Clean Professional Marketing ATS Resume.pdf](https://github.com/user-attachments/files/16511442/White.Blue.Modern.Clean.Professional.Marketing.ATS.Resume.pdf)
+- 📄 Know about my work experience  [Shruti_Pingale Resume.pdf](https://github.com/user-attachments/files/16511442/White.Blue.Modern.Clean.Professional.Marketing.ATS.Resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
