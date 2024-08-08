@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **C++, AIML**
 
--  I’m currently working at **Dassault Systèmes Solutions Lab,**
+- 🏢 I’m currently working at **Dassault Systèmes Solutions Lab,**
 
 - 📫 How to reach me **shutingle0709@gmail.com**
 
