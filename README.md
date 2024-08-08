@@ -7,6 +7,8 @@
 
 - 🌱 I’m currently learning **C++, AIML**
 
+-  I’m currently working at **Dassault Systèmes Solutions Lab,**
+
 - 📫 How to reach me **shutingle0709@gmail.com**
 
 - 📄 Know about my work experience  [Shruti_Pingale Resume.pdf](https://github.com/user-attachments/files/16511442/White.Blue.Modern.Clean.Professional.Marketing.ATS.Resume.pdf)
