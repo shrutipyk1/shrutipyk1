@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **shutingle0709@gmail.com**
 
-- 📄 Know about my work experience  [Shruti_Pingale Resume.pdf](https://github.com/user-attachments/files/16511442/White.Blue.Modern.Clean.Professional.Marketing.ATS.Resume.pdf)
+- 📄 Know about my work experience  [SHRUTI_PINGALE_RESUME.pdf](https://github.com/user-attachments/files/16558052/SHRUTI_PINGALE_RESUME.pdf)
 
 - 📫 How to reach me: [Gmail](https://mail.google.com/mail/u/0/?tab=rm&ogbl#inbox?subject=[GitHub])
 - <h3 align="left">Connect with me:</h3>
